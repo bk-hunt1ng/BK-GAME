@@ -8,4 +8,4 @@ Planning to have a combat system inspired by the shen magoomi tensay games (most
 I don't plan on making this a game that takes itself seriously, so it's ehh.
 
 
-The final game will be free to play with no ads and no bs. You could say this is a passion project but without the passion. I mean, I'm interested but I'm not sure if this is something that's gonna make everyone go "POG".
+The final game will be free to play with no ads and no bs. You could say this is a passion project but without the passion. I mean, I'm interested but I'm not sure if this is something that's gonna make me proud, but we'll see about that.
